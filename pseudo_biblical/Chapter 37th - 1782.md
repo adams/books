@@ -13,15 +13,15 @@ Verse 1st. AND it came to pass in the reign of George the king, who ruled over A
 
 2d. For the tribe of Columbia had fallen off, saying one unto another, wherefore should the king of Albion rule over us as if we were his handmen, and the saying pleased the people.
 
-3d. And there were amongst them certain cunning men, fair of speech, who stirred up sedition, saying, hearken unto our voice oh ! ye men of Columbia, for it is the voice of the Lord.
+3d. And there were amongst them certain cunning men, fair of speech, who stirred up sedition, saying, hearken unto our voice oh ye men of Columbia, for it is the voice of the Lord.
 
-4th. Thus saith th eLord, shake off the yoke of Albion and the king thereof, and chuse unto yourselves judges and rulers out of your own tribe to govern you.
+4th. Thus saith the Lord, shake off the yoke of Albion and the king thereof, and chuse unto yourselves judges and rulers out of your own tribe to govern you.
 
 5th. And let them be wise and upright men, and they shall rule over you, but ye shall each of you do as seemeth good in his own eyes, and so shall ye be freemen, and not slaves.
 
 6th. And all the people shouted with a great shout and cried aloud these men be wise and upright, and worthy to rule over us, and in that day they were chosen as judges and rulers over the people.
 
-7th. And the rulers appointed captains of tens, and captains of hundreds and captains of thousands, and cried to your tents, O ! Columbia.
+7th. And the rulers appointed captains of tens, and captains of hundreds and captains of thousands, and cried to your tents, O Columbia.
 
 8th. Now when there came to Albion and the king thereof, he waxed exceeding wrath, and sent forth a mighty host of horsemen and footmen, fifty and two thousand fighting men sent he forth, all men of valour.
 
@@ -39,7 +39,7 @@ Verse 1st. AND it came to pass in the reign of George the king, who ruled over A
 
 15th. And so that day Nirod took many of their ships and destroyed many, so that of all the ships of Hispania very few did escape.
 
-16th. Then went they on their way towards the isles of the west as the king had commanded, and lo ! the men of Gallia in many ships appeared in battle array.
+16th. Then went they on their way towards the isles of the west as the king had commanded, and lo the men of Gallia in many ships appeared in battle array.
 
 17th. And they did fight once again; and retired to their strong holds, each boasting of his deeds, but no man wist which of them spake the truth, for they both claimed the victory.
 
